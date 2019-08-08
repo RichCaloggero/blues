@@ -4,8 +4,7 @@
 - Sarah Vaughan (Columbia Records 1949): https://www.youtube.com/watch?v=CRyN9wQ1taY
 - Peggy Lee: https://www.youtube.com/results?search_query=%22black+coffee%22+Peggy+Lee
 
-## [Tried to Call You Late last night..Lynwood Slim in A ]
-(https://www.youtube.com/watch?v=yRZIxgD0qdE)
+## [Tried to Call You Late last night..Lynwood Slim in A ](https://www.youtube.com/watch?v=yRZIxgD0qdE)
 
 - 16 bar, mid tempo shuffle
 - pattern: a, a, b, a, solo on A
