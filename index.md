@@ -13,7 +13,7 @@
 
 
 ## You were wrong Magic Sam
-https://youtu.be/n15_gk7UEKg
+[https://youtu.be/n15_gk7UEKg]
 
 ## HOWLIN' WOLF - DUST MY BROOM 
 https://www.youtube.com/watch?v=Pl1AO3bPwk8
