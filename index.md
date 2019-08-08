@@ -4,6 +4,11 @@
 - [Sarah Vaughan (Columbia Records 1949)](https://www.youtube.com/watch?v=CRyN9wQ1taY)
 - [Peggy Lee](https://www.youtube.com/results?search_query=%22black+coffee%22+Peggy+Lee)
 
+## [Stormy Monday -  Allman Brothers in G](https://www.youtube.com/watch?v=Bqa1s4jhkQ8)
+
+- 16 bar, Slow blues
+
+
 ## [Tried to Call You Late last night..Lynwood Slim in A ](https://www.youtube.com/watch?v=yRZIxgD0qdE)
 
 - 16 bar, mid tempo shuffle
