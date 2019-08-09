@@ -1,5 +1,15 @@
 # Blues Songs with Notes
 
+## [Finest Lovin' Man - Bonnie Raitt in E](https://www.youtube.com/watch?v=hzQP1nW7HkU&feature=youtu.be)
+
+- slow shuffle
+- 1, 4 all the way; never goes to the 5 chord
+	+ always 8 bars on the 1 chord when verse begins
+	+ always 4 bars on the 4 chord
+	+ back to the 1 and hold until verse comes around again
+	+ solos only on the 1 chord
+
+
 ## Black Coffee
 - [Sarah Vaughan (Columbia Records 1949)](https://www.youtube.com/watch?v=CRyN9wQ1taY)
 - [Peggy Lee](https://www.youtube.com/results?search_query=%22black+coffee%22+Peggy+Lee)
@@ -17,7 +27,7 @@
 - part b: 4, 1, 2, 5
 
 
-## [You were wrong Magic Sam](https://youtu.be/n15_gk7UEKg)
+## [You were wrong Magic Sam](https://www.youtube.com/watch?v=vTSlUsQh8YQ&feature=youtu.be)
 
 ## [HOWLIN' WOLF - DUST MY BROOM ](https://www.youtube.com/watch?v=Pl1AO3bPwk8)
 
