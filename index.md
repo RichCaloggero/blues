@@ -1,5 +1,13 @@
 # Blues Songs with Notes
 
+## [Down Home Blues - Etta James](https://www.youtube.com/watch?v=IbBdnT26pg8)
+
+- slow 12 bar shuffle
+
+## [To Be Alone with You - Sue Foley covering Bob Dylan](https://www.youtube.com/watch?v=XCY5N8V1Sjw)
+
+## [I'm Coming Down With the Blues - Marcia Ball](https://www.youtube.com/watch?v=0pZQVktWSv4)
+
 ## [Finest Lovin' Man - Bonnie Raitt in E](https://www.youtube.com/watch?v=hzQP1nW7HkU&feature=youtu.be)
 
 - slow shuffle
