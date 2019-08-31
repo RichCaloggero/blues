@@ -8,6 +8,9 @@
 
 ## [I'm Coming Down With the Blues - Marcia Ball](https://www.youtube.com/watch?v=0pZQVktWSv4)
 
+## [Mother-in-Law Blues in E](https://www.youtube.com/watch?v=Q0QtxBe1jXw)
+- 12 bar mid tempo shuffle, quick 4
+
 ## [Finest Lovin' Man - Bonnie Raitt in E](https://www.youtube.com/watch?v=hzQP1nW7HkU&feature=youtu.be)
 
 - slow shuffle
