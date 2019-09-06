@@ -1,5 +1,9 @@
 # Blues Songs with Notes
 
+## Ensemble recordings
+
+[Ensemble recordings organized by date.](http://goodysinclair.com/music/morningside/blues/)
+
 ## [Down Home Blues - Etta James](https://www.youtube.com/watch?v=IbBdnT26pg8)
 
 - slow 12 bar shuffle
