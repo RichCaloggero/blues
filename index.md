@@ -4,7 +4,7 @@
 
 [Ensemble recordings organized by date.](http://goodysinclair.com/music/morningside/blues/)
 
-## [The Fabulous Thunderbirds - Mathilda (C#)](https://youtu.be/h6P-FnvfirQ)
+## [Mathilda (C) - The Fabulous Thunderbirds](https://youtu.be/h6P-FnvfirQ)
 
 - slow 12/8 feel, 16 bar, starts on the 4 
 - turnaround: 1, 4, 1, stop 
