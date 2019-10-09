@@ -33,6 +33,9 @@
 
 
 ## Black Coffee
+- [Ella Fitzgerald](https://www.youtube.com/watch?v=222UoHUCR0o&feature=youtu.be)
+- [Carmen McRae](https://www.youtube.com/watch?v=DT5eR2_fb1Y)
+- [Lisa Michelle ](https://www.youtube.com/watch?v=TvY2XjSl8VQ)
 - [Sarah Vaughan (Columbia Records 1949)](https://www.youtube.com/watch?v=CRyN9wQ1taY)
 - [Peggy Lee](https://www.youtube.com/results?search_query=%22black+coffee%22+Peggy+Lee)
 
