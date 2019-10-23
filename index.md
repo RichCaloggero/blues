@@ -4,12 +4,23 @@
 
 [Ensemble recordings organized by date.](http://goodysinclair.com/music/morningside/blues/)
 
+## [Key to the Highway](https://youtu.be/W0kaqj4-OGs)
+
+## [Rock Me Baby](https://youtu.be/7NvZizBzp3Q)
+
+
+## [Kansas City in C](https://youtu.be/2-sIU7bxhQQ)
+
+## [Killing Floor in A](https://youtu.be/CHrVB35kTrE)
+
+
 ## [Mathilda (C) - The Fabulous Thunderbirds](https://youtu.be/h6P-FnvfirQ)
 
 - slow 12/8 feel, 16 bar, starts on the 4 
 - turnaround: 1, 4, 1, stop 
 - intro: 1, 4, 5, turnaround
 
+## [Blues Ain't Nuthin but a Woman](https://youtu.be/Fs1Aa383BCI)
 
 ## [Down Home Blues - Etta James](https://www.youtube.com/watch?v=IbBdnT26pg8)
 
